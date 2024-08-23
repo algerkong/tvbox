@@ -8,7 +8,7 @@ https://github.moeyy.xyz/https://raw.githubusercontent.com/PizazzGY/TVBox_wareho
 
 https://gh.llkk.cc/https://raw.githubusercontent.com/PizazzGY/TVBox_warehouse/main/warehouse.txt
 
-https://github.ednovas.xyz/https://raw.githubusercontent.com/PizazzGY/TVBox_warehouse/main/warehouse.txt
+http://alger.fun/tvbox/warehouse.txt
 
 此资源需软件支持多仓
 
